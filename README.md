@@ -63,7 +63,7 @@ Fred Danjuma
 Email: freddanjuma247@gmail.com
 GitHub: https://github.com/Freddanjuma/TravellersX
 LinkedIn: www.linkedin.com/in/
-fred-danjuma-b9180a366
+fred-danjuma-b9180a366.
 
 
 
